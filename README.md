@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kuraima47
+- 👀 I’m interested in Gaming Developpement
+- 📫 How to reach me developp.kuraima@gmail.com
