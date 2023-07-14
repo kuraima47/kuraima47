@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @kuraima47
-- 👀 I’m interested in Gaming Developpement
+- 👀 I’m interested in Developpement UwU
 - 📫 How to reach me developp.kuraima@gmail.com
+- Subscribe me for more adventure 🫠
